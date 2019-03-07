@@ -89,5 +89,8 @@ https://www.winnieyoe.com/hackingsmarttoy/week-4-smart-toy-ideation
 * Shawn, Rachel, Olivia:
 https://oliviakung.com/spring2019blog/smarttoys4
 
+* Tianyi, Chunhan, Yihan(Helen):
+http://tianyix.hosting.nyu.edu/blog/hacking-smart-toys/low-fidelity-design-the-water-maze/
+
 
 
